@@ -1,0 +1,2 @@
+# AW-Fixed-RNG
+ONLY ALLOWED ON speedrun.com PATCHED CATEGORY.
